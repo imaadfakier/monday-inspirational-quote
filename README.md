@@ -1,2 +1,2 @@
 # Monday Motivational Quote
-Nobody loves Mondays, but I have the cure.
+Nobody loves Mondays, but here's the cure.
